@@ -1,4 +1,0 @@
-Geek-Grenier
-============
-
-Geek-Grenier
